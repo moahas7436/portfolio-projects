@@ -53,4 +53,4 @@ Or:
 ## Author
 
 - Mohammad Hasan  
-- [LinkedIn](https://www.linkedin.com/mohammadamaarhasan)  
+- [LinkedIn](https://www.linkedin.com/in/mohammadamaarhasan/)  
